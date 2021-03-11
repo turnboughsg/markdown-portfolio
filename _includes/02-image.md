@@ -1,1 +1,1 @@
-![image of an otter](https://images.app.goo.gl/gA5ge5Qz4a6NyFai7)
+![image of an otter](https://images.app.goo.gl/aMRneT4VJDpxYFuo6)
