@@ -1,1 +1,1 @@
-![image of my dogs Dax, tan, and Shrimp, white, cuddling](https://share.icloud.com/photos/0aB6a-WvS9ozPJ0fhPki21pBQ#Birmingham_-_Five_Points_South)
+![image of my dogs Dax, tan, and Shrimp, white, cuddling](https://drive.google.com/file/d/17kZJ_hd_TF4X5xK1tg1EkEXHetwnMDKI/view?usp=drivesdk)
